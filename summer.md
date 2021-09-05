@@ -12,3 +12,7 @@ for the first time in more than a decade!
 
 <b>Colin Ferguson:</b><br>
 During the summer I worked as a server for Brothers Bar and Grill in Muncie to save some money for the future.
+
+<b>Eric Vester<b>
+This summer I did the LSAMP program through Ball State also worked to get a
+certification in AWS. I also spent a lot of time with family.

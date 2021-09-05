@@ -9,3 +9,6 @@ Finally, I woke up and repeated that process :/<br><br>
 During the summer, I worked in a basement at Ball State's Speech Pathology Clinic.
 I enjoyed spending time with friends and family alike. I even saw my grandparents
 for the first time in more than a decade!
+
+<b>Colin Ferguson:</b><br>
+During the summer I worked as a server for Brothers Bar and Grill in Muncie to save some money for the future.
